@@ -1,5 +1,5 @@
 
-<p align=center> choko/bran </p>
+<p align=center> choko </p>
 <p align=center> c+h freely - always seen at docks; fashion roulettes+rps i mostly make roblox skins cause i have nothing to do in my life</p>
 <p align=center> avid roblox player since 10.28.2016 </p>
 <p align=center> selective+nonsharing 007n7 riako </p>
